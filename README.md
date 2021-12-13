@@ -1,1 +1,1 @@
-# rsschool-cv
+https://KoneLBelarus.github.io/rsschool-cv/cv
